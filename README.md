@@ -1,2 +1,1 @@
-slk, deve ser difico usar github
-💣💣💣😎😎👿👿😭😭😭
+eu sabo sabidamente (esse meme já deve ter morrido)
